@@ -1,0 +1,1 @@
+# Git_a_github_zaklady-github-zaciatocnicky-kurz
